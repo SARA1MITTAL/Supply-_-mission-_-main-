@@ -1,2 +1,1 @@
-# Supply-_-mission-_-main-
-too good to be true...
+# SupplyMission
